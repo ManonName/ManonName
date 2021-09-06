@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ManonName
 - 👀 I’m interested in programming things, still learning...
-- 🌱 I’m currently learning the universe.
+- 🌱 I’m currently learning the secrets of the universe.
 - 💞️ I’m looking to collaborate on how to create life forms on Mars.
 - 📫 How to reach me : m@il -> mn.naamane@gmail.com
 
