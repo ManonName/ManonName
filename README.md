@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ManonName
+- 👋 Hi, I’m just a chill guy
 - 👀 I’m interested in programming things, still learning...
 - 🌱 I’m currently learning the secrets of the universe.
 - 💞️ I’m looking to collaborate on how to create life forms on Mars.
